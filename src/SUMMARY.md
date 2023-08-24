@@ -1,6 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
+- [Chapter 1: Introduction](README.md)
   - [Overview of the book's purpose and objectives](chapter-1-1.md)
   - [The importance of work-life balance for personal and professional fulfillment](chapter-1-2.md)
   - [Understanding the key elements of work-life balance](chapter-1-3.md)
