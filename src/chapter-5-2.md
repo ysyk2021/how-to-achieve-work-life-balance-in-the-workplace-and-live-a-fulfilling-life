@@ -1,5 +1,3 @@
-Communicating Your Boundaries Effectively
-======================================================================================
 
 Effective communication is essential for setting boundaries and saying no without guilt or fear. In this chapter, we'll explore strategies for communicating your boundaries effectively.
 

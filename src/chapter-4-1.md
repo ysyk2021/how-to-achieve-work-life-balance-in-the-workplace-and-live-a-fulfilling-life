@@ -1,5 +1,3 @@
-Strategies for Managing Your Time More Efficiently
-=============================================================================================
 
 Managing time effectively is crucial for achieving work-life balance. In this chapter, we'll explore strategies for managing time more efficiently.
 

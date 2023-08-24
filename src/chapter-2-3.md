@@ -1,5 +1,3 @@
-Common Misconceptions About Work-Life Balance
-====================================================================================
 
 Work-life balance is often misunderstood and can lead to misconceptions that prevent individuals from achieving it. In this chapter, we'll explore some common misconceptions about work-life balance.
 

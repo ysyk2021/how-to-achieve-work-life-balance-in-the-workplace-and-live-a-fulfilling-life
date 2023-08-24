@@ -1,5 +1,3 @@
-Chapter 4: Managing Your Time Effectively
-=========================================
 
 Managing time effectively is essential for achieving work-life balance. With effective time management strategies in place, individuals can prioritize personal and professional goals, reduce stress, and improve overall well-being. In this chapter, we'll explore strategies for managing time more efficiently.
 

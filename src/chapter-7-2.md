@@ -1,5 +1,3 @@
-Identifying Symptoms of Stress and Burnout
-==================================================================================
 
 Stress and burnout can negatively impact work-life balance and overall well-being. In this chapter, we'll explore how to identify symptoms of stress and burnout.
 

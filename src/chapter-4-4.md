@@ -1,5 +1,3 @@
-Overcoming Procrastination and Distractions
-======================================================================================
 
 Procrastination and distractions can negatively impact effective time management and work-life balance. In this chapter, we'll explore strategies for overcoming procrastination and distractions to manage time more effectively.
 

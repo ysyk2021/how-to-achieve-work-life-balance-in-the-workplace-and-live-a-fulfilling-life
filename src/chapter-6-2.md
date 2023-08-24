@@ -1,5 +1,3 @@
-Strategies for Practicing Self-Care
-=======================================================================
 
 Practicing self-care is crucial for maintaining physical, mental, and emotional well-being. It involves taking time to focus on your own needs and prioritize activities that promote relaxation and rejuvenation. In this chapter, we'll explore strategies for practicing self-care.
 

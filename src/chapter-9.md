@@ -1,5 +1,3 @@
-Chapter 9: Achieving Work-Life Balance as an Entrepreneur
-=========================================================
 
 Entrepreneurs often face unique challenges when it comes to achieving work-life balance. Running a business can take up a significant amount of time and energy, which can make it challenging to maintain a healthy balance between work and personal life. In this chapter, we'll explore strategies for achieving work-life balance as an entrepreneur.
 

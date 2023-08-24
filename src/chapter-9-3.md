@@ -1,5 +1,3 @@
-Building a Supportive Network for Work-Life Balance
-==============================================================================================================
 
 Achieving work-life balance as an entrepreneur can be challenging since entrepreneurs often have to manage various responsibilities simultaneously. Building a supportive network is essential for achieving work-life balance and maintaining overall well-being. In this chapter, we'll explore strategies for building a supportive network as an entrepreneur.
 

@@ -1,4 +1,3 @@
-# Evaluating your current work-life balance
 
 Achieving a healthy work-life balance is essential for productivity, personal well-being, and career success. In this chapter, we will explore techniques for identifying your priorities and evaluating your current work-life balance.
 

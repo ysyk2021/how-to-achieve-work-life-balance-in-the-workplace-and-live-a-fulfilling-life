@@ -1,5 +1,3 @@
-Understanding Your Values and Priorities
-================================================================================
 
 Achieving work-life balance requires understanding your values and priorities. In this chapter, we'll explore strategies for identifying your priorities and how they can help you achieve a fulfilling life.
 

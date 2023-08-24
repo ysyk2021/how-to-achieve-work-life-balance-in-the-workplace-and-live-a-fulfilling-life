@@ -1,5 +1,3 @@
-Understanding the Impact of Stress and Burnout on Work-Life Balance
-===========================================================================================================
 
 Stress and burnout can have a significant impact on work-life balance and overall well-being. In this chapter, we'll explore the impact of stress and burnout on work-life balance.
 

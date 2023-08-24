@@ -1,5 +1,3 @@
-Chapter 7: Managing Stress and Burnout
-======================================
 
 Stress and burnout are common challenges that can impact work-life balance and overall well-being. In this chapter, we'll explore the impact of stress and burnout on work-life balance, how to identify symptoms of stress and burnout, and strategies for managing stress and preventing burnout.
 

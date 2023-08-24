@@ -1,5 +1,3 @@
-Chapter 3: Identifying Your Priorities
-======================================
 
 Identifying your priorities is essential for achieving work-life balance. In this chapter, we'll explore how to understand your values and priorities, evaluate your current work-life balance, and set goals for achieving work-life balance.
 

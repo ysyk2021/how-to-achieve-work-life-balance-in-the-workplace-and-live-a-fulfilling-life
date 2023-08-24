@@ -1,5 +1,3 @@
-Prioritizing Tasks and Activities
-============================================================================
 
 Prioritizing tasks and activities is an essential part of managing time effectively. In this chapter, we'll explore how to prioritize tasks and activities to achieve work-life balance.
 

@@ -1,5 +1,3 @@
-Understanding the Key Elements of Work-Life Balance
-============================================================================
 
 Work-life balance is the state of equilibrium between an individual's work and personal life. Achieving work-life balance involves finding a healthy balance between these two areas, where neither takes priority over the other. In this chapter, we'll explore the key elements of work-life balance.
 

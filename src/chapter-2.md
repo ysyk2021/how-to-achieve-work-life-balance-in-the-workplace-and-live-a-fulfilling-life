@@ -1,5 +1,3 @@
-Chapter 2: Defining Work-Life Balance
-=====================================
 
 Defining work-life balance is essential for achieving greater happiness and fulfillment both personally and professionally. In this chapter, we'll explore what work-life balance is, the benefits of achieving it, and common misconceptions about work-life balance.
 

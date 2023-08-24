@@ -1,5 +1,3 @@
-The Importance of Self-Care for Achieving Work-Life Balance
-===============================================================================================
 
 Self-care is crucial for achieving work-life balance and overall well-being. In this chapter, we'll explore the importance of self-care and strategies for incorporating self-care into daily routines.
 

@@ -1,5 +1,3 @@
-Coping Strategies for Managing Stress and Preventing Burnout
-====================================================================================================
 
 Stress and burnout can negatively impact work-life balance, leading to physical and mental health problems. In this chapter, we'll explore coping strategies for managing stress and preventing burnout.
 

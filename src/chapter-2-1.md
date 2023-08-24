@@ -1,5 +1,3 @@
-What is Work-Life Balance?
-=================================================================
 
 Work-life balance refers to the equilibrium between work and personal life. It is a state where employees can effectively manage their work demands while also having enough time and energy for their personal lives. Achieving work-life balance helps individuals avoid burnout and maintain overall well-being.
 

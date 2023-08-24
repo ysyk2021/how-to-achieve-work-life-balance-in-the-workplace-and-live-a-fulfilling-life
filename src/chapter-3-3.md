@@ -1,5 +1,3 @@
-Setting Goals for Achieving Work-Life Balance
-=====================================================================================
 
 Setting clear goals and priorities is crucial for achieving work-life balance. In this chapter, we'll explore strategies for identifying priorities and setting goals.
 

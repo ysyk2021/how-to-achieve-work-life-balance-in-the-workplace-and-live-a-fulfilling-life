@@ -1,5 +1,3 @@
-Building Healthy Habits That Support Work-Life Balance
-==========================================================================================
 
 Achieving work-life balance is not just about managing your time and tasks effectively. It's also about taking care of yourself physically, mentally, and emotionally. In this chapter, we'll explore some healthy habits that can help you achieve work-life balance and live a fulfilling life.
 

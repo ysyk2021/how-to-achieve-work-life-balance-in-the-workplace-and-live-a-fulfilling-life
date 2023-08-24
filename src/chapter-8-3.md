@@ -1,5 +1,3 @@
-Managing Career Setbacks and Challenges
-=================================================================================
 
 Navigating career transitions can be challenging, and setbacks and challenges are part of the process. In this chapter, we'll explore how to manage career setbacks and challenges during career transitions while maintaining work-life balance.
 

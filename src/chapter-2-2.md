@@ -1,5 +1,3 @@
-The Benefits of Achieving Work-Life Balance
-==================================================================================
 
 Work-life balance refers to the ability to manage the demands of work and personal life effectively. It involves finding a healthy balance between the two, where neither takes priority over the other. In this chapter, we'll explore the benefits of achieving work-life balance.
 

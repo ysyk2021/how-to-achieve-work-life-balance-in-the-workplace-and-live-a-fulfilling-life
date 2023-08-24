@@ -1,5 +1,3 @@
-Chapter 5: Setting Boundaries and Saying No
-===========================================
 
 Setting boundaries and learning to say no are essential components of achieving work-life balance. Without clear boundaries, it's easy to become overwhelmed and overworked, leading to burnout and decreased overall well-being. In this chapter, we'll explore the importance of setting boundaries and strategies for communicating your boundaries effectively.
 

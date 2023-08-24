@@ -1,5 +1,3 @@
-Understanding the Importance of Setting Boundaries
-===============================================================================================
 
 Setting boundaries is essential for achieving work-life balance and maintaining overall well-being. In this chapter, we'll explore the importance of setting boundaries.
 
