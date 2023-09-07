@@ -9,3 +9,7 @@ In this book, we'll cover topics such as time management, self-care, employee we
 By the end of this book, you'll have all the tools and strategies you need to achieve work-life balance and live a fulfilling life. So let's get started!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
