@@ -1,5 +1,4 @@
-Chapter 4: Understanding Your Values and Priorities
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to achieve work-life balance in the workplace and live a fulfilling life, it is crucial to have a clear understanding of your values and priorities. This chapter explores the significance of identifying your core values and establishing priorities that align with them. By recognizing what truly matters to you, you can make informed decisions and create a harmonious integration of work and personal life.
 

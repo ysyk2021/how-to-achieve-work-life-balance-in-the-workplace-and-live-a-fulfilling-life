@@ -1,5 +1,4 @@
-Chapter 4: Overcoming Procrastination and Distractions
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining work-life balance can be challenging, especially in today's fast-paced and technology-driven world. Procrastination and distractions often hinder productivity and disrupt the delicate balance between work and personal life. In this chapter, we will explore strategies for overcoming procrastination and managing distractions to create a more productive and fulfilling life.
 

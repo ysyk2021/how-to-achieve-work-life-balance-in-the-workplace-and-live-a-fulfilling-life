@@ -1,5 +1,4 @@
-Chapter 13: Setting Goals for Achieving Work-Life Balance
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting goals is an effective way to achieve work-life balance and live a fulfilling life. By establishing clear objectives and priorities, individuals can create a roadmap for managing their time, energy, and resources more effectively. This chapter highlights the importance of setting goals and provides practical tips for setting and pursuing them.
 

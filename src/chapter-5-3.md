@@ -1,5 +1,4 @@
-Chapter 6: Learning to Say No Without Guilt or Fear
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining work-life balance requires the ability to set boundaries and prioritize one's own well-being. Learning to say no without guilt or fear is a crucial skill that empowers individuals to protect their time, energy, and personal life. In this chapter, we will explore strategies for effectively saying no, overcoming guilt or fear, and fostering a healthier work-life balance.
 

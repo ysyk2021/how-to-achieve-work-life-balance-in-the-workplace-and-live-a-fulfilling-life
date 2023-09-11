@@ -1,5 +1,4 @@
-Chapter 11: Managing Career Setbacks and Challenges
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Inevitably, we will encounter setbacks and challenges throughout our careers. Learning to navigate these obstacles is key to maintaining work-life balance and living a fulfilling life. In this chapter, we will explore strategies for effectively managing career setbacks and challenges.
 

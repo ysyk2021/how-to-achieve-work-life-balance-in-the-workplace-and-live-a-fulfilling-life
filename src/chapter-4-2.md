@@ -1,5 +1,4 @@
-Chapter 12: Prioritizing Tasks and Activities for Work-Life Balance
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective prioritization is key to achieving work-life balance and living a fulfilling life. In this chapter, we will explore the importance of prioritization in managing your time and energy, and discuss strategies for prioritizing tasks and activities.
 
@@ -43,7 +42,6 @@ Finally, evaluating your priorities regularly is essential to achieving work-lif
 
 Managing workload and expectations is critical in prioritization. Avoid taking on more than you can handle, communicate clearly with colleagues and managers about your availability and limitations, and prioritize your well-being above work demands. By managing your workload and expectations, you can avoid burnout, reduce stress, and achieve work-life balance.
 
-Conclusion
-==========
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Prioritization plays a crucial role in achieving work-life balance. By identifying high-priority tasks, simplifying and streamlining tasks, and setting realistic goals and deadlines, you can optimize your productivity and reduce stress levels. Incorporating personal activities into your priorities, minimizing distractions, and continuously evaluating your priorities enables you to achieve work-life balance while maintaining momentum towards your personal and professional goals. Remember, effective prioritization requires balance and flexibility, and it may require adjustments over time.

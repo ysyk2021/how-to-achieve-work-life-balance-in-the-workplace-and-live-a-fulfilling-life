@@ -1,5 +1,4 @@
-Chapter 11: The Importance of Self-Care for Achieving Work-Life Balance
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-care is a crucial component of achieving work-life balance and living a fulfilling life. In this chapter, we will explore the significance of self-care and discuss various strategies to prioritize self-care in your journey towards work-life balance.
 

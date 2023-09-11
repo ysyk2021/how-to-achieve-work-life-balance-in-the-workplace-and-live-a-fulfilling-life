@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Practicing Self-Care
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and demanding work environments, maintaining a healthy work-life balance is essential for living a fulfilling life. One crucial aspect of achieving this balance is practicing self-care. Self-care involves intentionally taking care of your physical, mental, and emotional well-being. By prioritizing self-care, you can recharge, reduce stress, and maintain overall happiness and productivity. In this chapter, we will explore various strategies for practicing self-care.
 

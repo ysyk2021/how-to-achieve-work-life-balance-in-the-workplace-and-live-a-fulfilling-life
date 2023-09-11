@@ -1,5 +1,4 @@
-Chapter 10: Building Healthy Habits That Support Work-Life Balance
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To achieve work-life balance and live a fulfilling life, it's essential to cultivate healthy habits that support your well-being. In this chapter, we will explore various habits you can develop to create a harmonious blend of work and personal life.
 

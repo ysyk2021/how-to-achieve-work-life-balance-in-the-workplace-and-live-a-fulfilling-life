@@ -1,5 +1,4 @@
-Chapter 9: Building a Supportive Network for Work-Life Balance
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a supportive network is a crucial element in achieving work-life balance and living a fulfilling life. In this chapter, we will explore strategies to build a strong support system that provides guidance, understanding, and encouragement during your journey towards work-life balance.
 

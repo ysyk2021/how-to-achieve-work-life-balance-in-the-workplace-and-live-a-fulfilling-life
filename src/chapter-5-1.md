@@ -1,5 +1,4 @@
-Chapter 12: Understanding the Importance of Setting Boundaries
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting boundaries is essential for achieving work-life balance and living a fulfilling life. Without clear boundaries, individuals may experience stress, burnout, and difficulties in maintaining healthy relationships. This chapter explores the importance of setting boundaries and offers practical tips for establishing and maintaining them.
 

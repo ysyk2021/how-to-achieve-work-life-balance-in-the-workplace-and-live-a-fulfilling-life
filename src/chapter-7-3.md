@@ -1,5 +1,4 @@
-Chapter 11: Coping Strategies for Managing Stress and Preventing Burnout
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effectively managing stress and preventing burnout is key to achieving work-life balance and living a fulfilling life. This chapter provides practical coping strategies that individuals can incorporate into their daily lives to reduce stress levels, cultivate resilience, and maintain overall well-being.
 

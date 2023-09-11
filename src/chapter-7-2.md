@@ -1,5 +1,4 @@
-Chapter 10: Identifying Symptoms of Stress and Burnout
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Recognizing the symptoms of stress and burnout is crucial to maintaining work-life balance and achieving a fulfilling life. This chapter explores common signs and symptoms of stress and burnout in the workplace, helping individuals identify when they may be at risk and take proactive steps towards self-care and well-being.
 

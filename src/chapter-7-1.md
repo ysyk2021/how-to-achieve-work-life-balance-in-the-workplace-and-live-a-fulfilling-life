@@ -1,5 +1,4 @@
-Chapter 8: Understanding the Impact of Stress and Burnout on Work-Life Balance
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and demanding work environments, stress and burnout have become prevalent issues that can significantly affect work-life balance. In this chapter, we will explore the impact of stress and burnout on individuals' well-being, relationships, and overall quality of life. Understanding these effects is essential for developing strategies to manage stress, prevent burnout, and achieve a more fulfilling work-life balance.
 

@@ -1,5 +1,4 @@
-Chapter 9: Communicating Your Boundaries Effectively
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication of boundaries is essential for establishing and maintaining work-life balance. This chapter explores strategies for effectively communicating your boundaries in the workplace, enabling individuals to prioritize their well-being, set limits on work demands, and create a healthier work-life harmony.
 

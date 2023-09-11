@@ -1,5 +1,4 @@
-Chapter 10: Balancing Career Aspirations with Personal Goals and Priorities
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Balancing career aspirations with personal goals and priorities is essential for achieving work-life balance and living a fulfilling life. In this chapter, we will explore strategies to navigate the intersection between your professional ambitions and personal aspirations.
 

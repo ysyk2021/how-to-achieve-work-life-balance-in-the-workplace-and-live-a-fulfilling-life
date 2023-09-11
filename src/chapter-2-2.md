@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Achieving Work-Life Balance
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving work-life balance is not only desirable but also comes with numerous benefits that positively impact both personal and professional aspects of life. In this chapter, we will explore the various advantages of attaining work-life balance and living a fulfilling life.
 

@@ -1,5 +1,4 @@
-Chapter 1: What is Work-Life Balance?
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Work-life balance refers to the ability to effectively manage both work and personal life, allowing individuals to lead fulfilling and satisfying lives. In today's fast-paced and demanding world, achieving work-life balance has become increasingly important for maintaining overall well-being and happiness.
 
